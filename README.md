@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Supriya
-- 👀 I’m interested in coding, web and app development 
+- 👀 I’m interested in coding, web and app development,all problem solving fields  
 - 🌱 I’m currently learning programming 
 - 💞️ I’m looking to collaborate on...
 - 📫 How to reach me ...
